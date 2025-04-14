@@ -3,4 +3,5 @@ Elearning-publik dapat diakses siapa saja , kalian data memakainya secara gratis
 1. SMKN 1 Cipeundeuy<br>
 2. SMPN 3 Cipeundeuy<br>
 3. SDN 3 Cisauheun<br>
+4. SDK 4 Pelita Jaya Internasional<br>
 
